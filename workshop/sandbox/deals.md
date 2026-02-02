@@ -1,19 +1,12 @@
-# Incredible Deal Alert!
+# Best Deal Found Today
 
-## Wattcycle 12V 100Ah Mini LiFePO4 Battery
+## TCL Q65 Series 55Q651G 55-inch QLED 4K UHD Smart TV
 
-- **Deal Price:** $162  
-- **Estimated True Value:** ~$340  
-- **Discount:** Over 50% off
-- **Link:** [View Deal](https://www.dealnews.com/Wattcycle-12-V-100-Ah-Mini-Bluetooth-Li-Fe-PO4-Battery-for-162-free-shipping/21805470.html?iref=rss-c142)
+- **Deal Price:** $250.00
+- **Estimated True Value:** $424.99
+- [View Deal](https://www.dealnews.com/products/TCL/TCL-Q65-Series-55-Q651-G-4-K-QLED-UHD-Smart-TV/473404.html?iref=rss-c142)
 
-### Product Highlights
-- Ultra-compact rechargeable battery: 9.0 × 5.6 × 8.2 inches, 20.8 lb  
-- 32% smaller than standard Group 24 batteries  
-- Bluetooth monitoring via app  
-- Durable IP65 enclosure  
-- Low-temperature protection  
-- Cycle life of 5,000+  
-- Suitable for RVs, marine, and off-grid use
+**Description:**
+A 55" QLED panel delivering 4K resolution with Dolby Vision and HDR10+ support for expanded color and contrast. Includes Auto Game Mode for reduced input lag, built-in Dolby Atmos and DTS Virtual:X audio processing, and smart TV features for streaming apps and connectivity.
 
-**This is one of the best bargains available right now considering value vs. price!**
+This represents a tremendous value — saving you nearly $175 vs. the estimated true value.
